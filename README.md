@@ -39,7 +39,10 @@ Bất kể ngày hay đêm, chỉ cần một cuộc gọi đến [tổng đài 
 > 👉 Với tất cả những lợi ích trên, BeachLimo là lựa chọn hàng đầu dành cho khách hàng cần dịch vụ taxi giá rẻ Vũng Tàu. Hãy tiếp tục theo dõi để biết thêm về các tuyến đường phổ biến và bảng giá chi tiết!
 
 Xem thêm tại bài viết chính thức:
-* 
+* https://beachlimo.info/post/taxi-gia-re-vung-tau
+* https://github.com/beachlimovietnam/taxi-gia-re-vung-tau
+* https://hackmd.io/@beachlimovietnam/BJTLuAVake
+* https://500px.com/photo/1111083070/taxi-gia-re-vung-tau-by-beachlimo-thue-taxi-gia-re
 
 ## 3. Các tuyến taxi phổ biến tại Vũng Tàu
 Với nhu cầu di chuyển đa dạng, dịch vụ taxi giá rẻ Vũng Tàu của BeachLimo cung cấp nhiều tuyến đường khác nhau, giúp khách hàng dễ dàng lựa chọn dịch vụ phù hợp với hành trình của mình.
